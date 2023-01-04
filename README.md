@@ -1,4 +1,4 @@
-## Skid of 1336 v2 + W4sp
+## Skid of W4sp Leaked By 1336 <3
 
 Trying to dualhook.
 
